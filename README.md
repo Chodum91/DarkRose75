@@ -3,8 +3,8 @@ world energy crisis~web ~.@.~.~^6^.rainwizzard.com.^6^~.@.~web.~https://github.c
 .~^♤^.Rainwizzard.~^♤^~.www.raptor.life.link.~^♤^.~Rainwizzard.~^♤^~..Larry/Expo@github.com .~.¹♤³.search.¹♤³.org.¹♤³..~.^3^.~.^@^.^~^.^~Dark_^Rose75^~.~^Matthew.^Shannon.^Amos.~ .~^1^.~.¹♤³.search.¹♤³.org.¹♤³..~.^3^.@
 ..https://rainwizzard.com/<~a~>.href=".¹♤³." target~.@.^~~>.~¹♤³~.~.¹♤³.~.<>/~\~/~~^.^@.~^6^.ra^nw^zzard.com.~^6^.^@^.~.~¹♤³.~.search.org.~.¹♤³.~.
 .~.~¹♤³.~.search.org.~.¹♤³.~....https://www.rainwizzard.com/.
-  ...https://rainwizzard.com/.~.@.^sassy^.^stills^^.^epic^.^1^on^1^.com.~^.@.^~
-   ....~rainwizzard.blogspot.com¹♤³}~.+.~{ @.^~.^~./\.~.+.~./\.~.^.~^.@ ^\=~.+.~{¹♤³rainwizzard.blogspot.com.~~rss.ssl~.~^♠^.¹♤³.^♠^~.matthew,shannon.amos.>~<a.b.> href="mattamos250@gmail.com~brucethepieman@gmail.com" target="_blank" rel="nofollow"></a.b.>m.amos@rainwizzardcom .~^♠^.¹♤³.^♠^~.https://rainwizzard.blogspot.com~www.rainwizzard.channels.
+  ...https://rainwizzard.com/.~.@.^sassy^.^stills^^.^epic^.^1^on^1^.com.~^.@.^~[
+](https://contacts.google.com/widget/companion?origin=https%3A%2F%2Fmail.google.com&hai=3&hc=4%2C1%2C5%2C9&hl=en&forcehl=1&usegapi=1&id=I0_1684477511690&_gfid=I0_1684477511690&parent=https%3A%2F%2Fmail.google.com&pfname=&rpctoken=11895164&jsh=m%3B%2F_%2Fscs%2Fabc-static%2F_%2Fjs%2Fk%3Dgapi.gapi.en.UjJbvPIecP0.O%2Fd%3D1%2Frs%3DAHpOoo_flbzE3yQmWQ7n7N3yCQZtJt8-oA%2Fm%3D__features)   ....~rainwizzard.blogspot.com¹♤³}~.+.~{ @.^~.^~./\.~.+.~./\.~.^.~^.@ ^\=~.+.~{¹♤³rainwizzard.blogspot.com.~~rss.ssl~.~^♠^.¹♤³.^♠^~.matthew,shannon.amos.>~<a.b.> href="mattamos250@gmail.com~brucethepieman@gmail.com" target="_blank" rel="nofollow"></a.b.>m.amos@rainwizzardcom .~^♠^.¹♤³.^♠^~.https://rainwizzard.blogspot.com~www.rainwizzard.channels.
 ..~channel.^♠^~.~^~.~^♠^. .~^♠^.Rainwizzard.com.^♠^~.>.~^♠^.¹♤³.^♠^~.www.bulentsenver.com.~^♠^.¹♤³.^♠^~.x   È   #®%§   sRGB ®Îé   gAMA  ±üapHYs  Ã.\?/<>ab<
   >~^♠^.¹♤³.^♠^~. 🕐.~[<>]_~.🕑
 🕐.~[<+>]_~.🕑
